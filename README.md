@@ -1,1 +1,0 @@
-# tugas-dari-pak-nadirr
